@@ -11,10 +11,6 @@ In the age of the internet, there is a lot of fantasy football advice out there.
 
 All posts will be short and to the point, so you can quickly and easily get the advice you need. No nonsense, just fantasy football. **Time to assassinate our leagues**.
 
-### About the Author
-
-This blog is written and maintained by **Sarthak Navjivan**. A fantasy football fanatic since the age of 10, he is a high school student with tremendous passions for both sports and numbers, finding fantasy football to be the perfect intersection of the two. This blog is his way of sharing his thoughts and strategies with the community. You can find out more about Sarthak, [here](http://sarthaknavjivan.me/).
-
 ### Contact
 
 Want some personal fantasy football advice? Email your situation to [fantasyassassin123@gmail.com](mailto:fantasyassassin123@gmail.com) for some free and friendly help :)
